@@ -25,7 +25,7 @@ Write all read.me Files
 
 - 👨‍💻 All of my projects are available at **a site in progress...**
 
-- 📫 How to reach me **pri.deluna@gmail.com**
+- 📫 How to reach me **pri.deluna@protonmail.com**
 
 ---
 
